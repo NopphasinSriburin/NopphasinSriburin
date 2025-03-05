@@ -6,6 +6,7 @@ I'm Nopphasin Sriburin 🚀
 
 📨 Contect to me
 - Email : Nopphasin.sriburin@gmail.com
+- KKUEmail : Nopphasin.s@kkumail.com
 
 ⚡ My skill 
 
